@@ -1,6 +1,6 @@
 # 👋 Hello, I'm Jesintha Christy Joe Loie
 
-🌍 Based in Coimbatore, India | 📫 Reach me at jesintha11100@gmail.com | [LinkedIn](linkedin.com/in/jesintha-christy-8062851b9)
+🌍 Based in Coimbatore, India | 📫 Reach me at jesintha11100@gmail.com | [LinkedIn](https://www.linkedin.com/in/jesintha-christy-8062851b9/)
 
 ---
 
